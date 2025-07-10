@@ -24,4 +24,4 @@
 
 立即收藏本站，加入2025年最火爆的免费日本AV平台行列，第一时间获取全网最新资源。成人羞羞免费，让看片更自由、更纯净、更爽快！
 
-<span style="display:none;">[Canonical link]  ( ）</span> 
+<span style="display:none;">[Canonical link]  ( https://github.com/tnn1205/riben15555 ）</span> 
